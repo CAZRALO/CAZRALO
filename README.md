@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @CAZRALO
-- 👀 I’m interested in manga
-- 🌱 I’m currently learning 
 - 📫 How to reach me :
 + facebook:https://www.facebook.com/cazralo.bo
 + discord : cazralobo_44
